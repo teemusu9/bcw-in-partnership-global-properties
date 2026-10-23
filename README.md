@@ -1,0 +1,2 @@
+# bcw-in-partnership-global-properties
+BREAST CANCER WARRIORS IN PARTNERSHIP WTH GLOBAL PROPERTIES
